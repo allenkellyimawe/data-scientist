@@ -85,7 +85,7 @@ Experienced IT professional specializing in data analysis, business intelligence
 
 ### **EDUCATION**
 
-**MSc. Computer Science (In View)**  
+**MSc. Electrical Engineering (In View)**  
 Rivers State University of Science and Technology, Port Harcourt  
 
 **Bachelor of Technology in Computer Engineering**  
